@@ -1,1 +1,1 @@
-# SI_2024_lab2_226067
+# Stefan Stojanovski 226067
